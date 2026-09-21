@@ -1,2 +1,0 @@
-# SADassignment
-chikae mensah abban
